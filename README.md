@@ -19,6 +19,6 @@
 
 ## 🔗 Let's Connect!
 
-* [LinkedIn]([your LinkedIn profile](https://www.linkedin.com/in/ornella-novino-a4632099/)) 
+* [LinkedIn](https://www.linkedin.com/in/ornella-novino-a4632099/)
 
 Looking forward to collaborating! 😊
